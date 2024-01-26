@@ -15,3 +15,4 @@
 4.производительность
 
 **artjom fetjukov**
+![image](https://github.com/qwethernal/blog/assets/132042328/c1b9d5d9-9a2e-4d9a-a600-03cd67bea9c2)
