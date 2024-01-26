@@ -16,5 +16,6 @@
 
 **artjom fetjukov**
 ![image](https://github.com/qwethernal/blog/assets/132042328/c1b9d5d9-9a2e-4d9a-a600-03cd67bea9c2)
-![image](https://github.com/qwethernal/blog/assets/132042328/c292dd5f-ab6e-4e93-8c73-5d0c84c1fa4b)
+![image](https://github.com/qwethernal/blog/assets/132042328/c8af020f-f883-4d81-bafe-52599069401b)
+
 
